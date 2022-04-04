@@ -1,2 +1,2 @@
-# ManheraGirl.github.io
+# TenuNFT.github.io
 Senpai, Please Do Me!
